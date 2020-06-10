@@ -1,4 +1,5 @@
 * 효과음은 저작권 문제로 제거된 상태입니다.
+해당 영상 : https://www.youtube.com/watch?v=5UK93yjhcd4&t=234s
 
 [작품 이름]
 은행 뽀개기
